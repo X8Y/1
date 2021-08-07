@@ -7,8 +7,7 @@
 
 备用观众版下载地址如下<br>          
 iqay.xyz<br>      
-k6tu.xyz<br>     
-8slt.xyz<br>    
+k6tu.xyz<br>       
 
 备用主播版下载地址如下<br>
 762b.xyz<br>    
